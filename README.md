@@ -1,5 +1,4 @@
-<h3 p align="center">" Meals are the special privilege of the living . . .
-<br>In order to stay alive, we need to keep eating. "</h3>
+
 <p align="center">
 <img src="https://files.catbox.moe/pizb47.png" width="50%">
 </p>

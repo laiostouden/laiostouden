@@ -1,4 +1,4 @@
-<h3 p align="center"> WADE (<a href="https://pronouns.cc/@deadpool">+</a>) <img src="https://files.catbox.moe/v2rsu3.png" height="16px"> <img src="https://files.catbox.moe/eezq86.png" height="16px"> HE/IT 21 ENFP ― <a href="https://funny.straw.page/">MORE INFO</a></h3>
+<h3 p align="center"> WADE or FELIX (<a href="https://pronouns.cc/@deadpool">+</a>) <img src="https://files.catbox.moe/v2rsu3.png" height="16px"> <img src="https://files.catbox.moe/eezq86.png" height="16px"> HE/IT 21 ENFP ― <a href="https://funny.straw.page/">MORE INFO</a></h3>
 <p align="center">
 <img src="https://files.catbox.moe/pizb47.png" width="50%">
 <br><br>i like <b>deadpool,</b> genshin, <b>good omens, homestuck,</b> regretevator,

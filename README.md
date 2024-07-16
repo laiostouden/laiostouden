@@ -5,7 +5,7 @@
 <br><b>dungeon meshi, star rail, smile for me, welcome home,</b> 8:11
 <br>lego monkie kid, sky: cotl, the magnus archives <a href="https://rentry.co/-spiderman">+ more</a>
 <br><br><b>whisp2int</b>, i'm usually multitasking and i rarely look in local chat!
-<br>i'm usually sitting with my friends, but i like making new ones too :3 
+<br>i'm basically always Near docks, so come say hi when you see me!
 <br><br><b>if you're younger than 18, keep interactions short</b> (please)
 <br>also, dni if proship or use "dark humor" to excuse being a bigot.
 <br>i usually ignore weird people, but i block/hide freely if needed.
